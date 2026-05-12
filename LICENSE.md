@@ -1,4 +1,4 @@
-#  
+#  adopt me smart Scripts offers the most advanced adopt me Script, with aimbot and fly. Perfect for dominating any match.
 
 
 
